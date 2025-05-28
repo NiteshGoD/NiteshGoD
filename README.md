@@ -24,7 +24,7 @@
 ---
 
 ### 📫 Let's Connect!
-- 📷 [Instagram: @nitesh.ranjitkar](https://instagram.com/nitesh.ranjitkar)
+- 📷 Instagram: [@nitesh.ranjitkar](https://instagram.com/nitesh.ranjitkar)
 - 📧 Email: [nit.ranjit@hotmail.com](mailto:nit.ranjit@hotmail.com)
 
 ---
